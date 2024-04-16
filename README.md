@@ -6,3 +6,6 @@ CW PROJECT - 1
 
 ![Screenshot 2024-04-16 224219](https://github.com/Rohitsingh13131313/Bluefly.com/assets/153498704/3ec419bf-eeb6-4ec6-84e0-1a2bf5b7512d)
 
+
+![Screenshot 2024-04-16 224251](https://github.com/Rohitsingh13131313/Bluefly.com/assets/153498704/90c8c8f3-f8e5-40f8-ae11-c27e5bfa5fde)
+
